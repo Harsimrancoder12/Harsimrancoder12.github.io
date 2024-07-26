@@ -32,3 +32,6 @@ This is the discription of ****STUDENT INDUCTION PROGRAM****
 | 22/07/2024 | Sangita Mam (Auditorium) | Told about pollution and experiences of her life |
 | 23/07/2024 | Chemistry lecture(Basics of chemistry) in F-112 |
 | 23/07/2024 | Peer Interaction about technical(chatgpt and Excel) in F-113 |
+| 24/07/2024 | IOC.Mr.Gauravdeep Singh(Auditorium) |
+| 24/07/2024 | Er.Lakhveer Singh (Auditorium) | Told about CML(Centr of Multi-Faced Learning) |
+| 24/07/2024 | Causmic Clu (Auditorium) 
