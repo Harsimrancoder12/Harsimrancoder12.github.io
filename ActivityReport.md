@@ -34,4 +34,9 @@ This is the discription of ****STUDENT INDUCTION PROGRAM****
 | 23/07/2024 | Peer Interaction about technical(chatgpt and Excel) in F-113 |
 | 24/07/2024 | IOC.Mr.Gauravdeep Singh(Auditorium) |
 | 24/07/2024 | Er.Lakhveer Singh (Auditorium) | Told about CML(Centr of Multi-Faced Learning) |
-| 24/07/2024 | Causmic Clu (Auditorium) 
+| 24/07/2024 | Causmic Club (Auditorium) |
+| 25/07/2024 | UHV Lecture(F-107) by prof.Mandeep Kaur | Told about value education,Understanding the human beings(as Co-existence of self and body)X,Harmony in the family | 
+| 25/07/2024 | Peer interaction about Canva (F-106) |
+| 25/07/2024 | Maths Test IN English lab |
+| 26/07/2024 | Dr.Kanwalpreet Kaur Bhatt(Auditorium) | Told about Meditation |
+| 26/07/2024 | Veledictory (Auditorium) |
