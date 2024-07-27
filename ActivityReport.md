@@ -39,4 +39,4 @@ This is the discription of ****STUDENT INDUCTION PROGRAM****
 | 25/07/2024 | Peer interaction (F-106) | Told about editting in Canva app |
 | 25/07/2024 | Maths Test in English lab |
 | 26/07/2024 | Dr.Kanwalpreet Kaur Bhatt(Auditorium) | Told about Meditation |
-| 26/07/2024 | Veledictory (Auditorium) |
+| 26/07/2024 | Veledictory (Auditorium) | Cultural activities |
